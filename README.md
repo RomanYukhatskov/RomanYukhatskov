@@ -29,8 +29,8 @@
 - Ищу работу на младшую позицию Data Scientist.
 
 ### 🙌🏻 Свяжись со мной
-- [Telegram](@roman_yukhatskov)
-- [WhatsApp](+7-915-474-85-23)
+- Telegram: @roman_yukhatskov
+- WhatsApp: +7-915-474-85-23
 
 ---
 
@@ -61,5 +61,5 @@
 - I am looking for a job for the junior position of Data Scientist.
 
 ### 🙌🏻 Contact me
-- [Telegram](@roman_yukhatskov)
-- [WhatsApp](+7-915-474-85-23)
+- Telegram: @roman_yukhatskov
+- WhatsApp: +7-915-474-85-23
